@@ -4,13 +4,13 @@
 
 여러분들은 혹시 프로야구 리그 경기를 보신 적이 있나요?
 
-[![2024 프로야구 플레이오프 KIA 팀 우승 헹가래 사진(출처 : KIA to receive record-high 5.2 billion won in postseason dividends, THE Dong-A ILBO, OCT 30 2024)](https://dimg.donga.com/i/620/0/90/ugc/CDB/ENGLISH/Article/67/21/67/86/672167860534d273823e.jpg)](https://www.donga.com/en/article/all/20241030/5255623/1)
+[![2024 프로야구 플레이오프 KIA 팀 우승 헹가래 사진(출처 : KIA to receive record-high 5.2 billion won in postseason dividends, THE Dong-A ILBO, OCT 30 2024)](https://dimg.donga.com/i/620/0/90/ugc/CDB/ENGLISH/Article/67/21/67/86/672167860534d273823e.jpg)](https://www.donga.com/en/article/all/20241030/5255623/1)  
 최근 한국에서는 프로야구 한국시리즈 결승전이 열정적인 분위기 속에서 기아팀의 우승으로 막을 내렸습니다. 연고지를 기반으로 하는 프로야구 리그처럼, 포켓몬 카드 게임으로도 대한민국 각지에 있는 포켓몬 카드샵을 기반으로 하는 **카드샵 대항전**이 열리고 있다는 사실을 아시나요???
 
-![포켓몬 카드샵 내부 모습 사진](https://lh3.googleusercontent.com/p/AF1QipNJ8U9l-F2PempqiAsIyxSm6ty4BF1AyDQ0M4FO=s680-w680-h510)
+![포켓몬 카드샵 내부 모습 사진](https://lh3.googleusercontent.com/p/AF1QipNJ8U9l-F2PempqiAsIyxSm6ty4BF1AyDQ0M4FO=s680-w680-h510)  
 포켓몬 카드는 문구점이나 대형마트 및 다양한 카드를 취급하는 일반 카드샵에서 쉽게 구매할 수 있지만, 최근에 포켓몬 카드 게임을 전문적으로 취급하는 <u>**포켓몬 카드샵**</u>이 등장했습니다. 포켓몬을 테마로 인테리어를 통일하고 특별한 이벤트를 여는 포켓몬 카드샵은 유저들의 성지와도 같습니다.
 
-![대항전 설명 이미지](https://data1.pokemonkorea.co.kr/newdata/2022/12/2022-12-30_18-28-15-86020-1672392495.png)
+![대항전 설명 이미지](https://data1.pokemonkorea.co.kr/newdata/2022/12/2022-12-30_18-28-15-86020-1672392495.png)  
 마치 프로야구에서 각 구단이 연고지를 기반으로 팀을 결성하고 선수들이 전국의 야구장을 순회하며 경기를 펼치는 것처럼, **포켓몬 카드샵 대항전**(이하 ‘대항전’)은 9개의 포켓몬 카드샵이 각자 팀을 꾸려 전국에 위치한 포켓몬 카드샵에 모여 펼치는 대회입니다.
 
 각 지역의 유저들이 의기투합해 함께 연습하고, 다른 지역 유저들과의 교류를 통해 실력을 높이며, 마스터 선수와 주니어 선수가 함께 노력하고 성장하는 흔치 않은 기회를 제공하는 것이 이 대회의 취지여야 했을 터입니다......
